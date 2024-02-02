@@ -1,3 +1,3 @@
 **rae** 15yr any pronouns
 
-**DNI**:  mspec lesb/gay, airy/contestant or comship
+**DNI**:  mspec lesb/gay, airy/contestant or comship  just general weirdos 
