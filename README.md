@@ -1,3 +1,3 @@
-**rae** 14yr remote fictionkin + fictive any pronouns
+**rae** 15yr any pronouns
 
-**DNI**: mspec les/gay, comship, rubymote or bottle x remote shippers (sorry..........)  airy x contestant shippers
+**DNI**:  mspec lesb/gay, airy/contestant or comship
